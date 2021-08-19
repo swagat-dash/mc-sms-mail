@@ -1,0 +1,1 @@
+Email connection is secure. Keep mailing.
